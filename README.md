@@ -1,2 +1,3 @@
 # Certificates
-Certificates I achieved till date.
+All my __certifications__ and __internship__ experience letters are found over here !
+
